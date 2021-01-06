@@ -1,0 +1,1 @@
+nekti tekst 
