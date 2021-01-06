@@ -1,1 +1,2 @@
 nekti tekst 
+novi red 
